@@ -6,7 +6,7 @@ I suck at starting up conversations, i appreciate you coming up to me first/inte
 
 - Please whisper me to interact, it will be easier for me to interact with you back
 
-*BYI*: I am a **MINOR.** If you have Minors on your DNI please follow it thanks 
+*BYI*: Always interact with caution hhh. I do not take criticism lightly sometimes,,and i have trouble figuring out wether or not you are joking (depending on the context)
 
 *Reminder that I have the right to choose to NOT interact with you,,you will know this if i either ignore you or just tell you straight forward*
 
