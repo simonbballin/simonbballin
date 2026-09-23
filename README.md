@@ -10,6 +10,3 @@
 
 </p>
 
-<p align="center">
-check straw for info 
-</p>
